@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sabith-akku
-- 👀 I’m interested incomputer coding and hacking 
+- 👀 I’m interested in computer coding and hacking 
 - 🌱 I’m currently learning bba 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me instagram
